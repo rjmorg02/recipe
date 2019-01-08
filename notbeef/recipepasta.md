@@ -10,3 +10,5 @@ Ingredients
 * McCormick Gourmet Collection Organic Italian Seasoning 0.55 Oz
 * 1 (8 ounce) package shredded Mozzarella cheese
 * Simple Truth Uncured Hard Salami Wrapped Mozzarella Cheese Salami Panino 1.5 Oz 2 pack
+
+Do not heat or cook in any way.
